@@ -1,16 +1,13 @@
-## Hi there 👋
+# hi to whoponyever is reading this >_o
 
-<!--
-**pekorandombrain/pekorandombrain** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img src="https://i.imgur.com/UyW2XVM.gif" align="right" width="285">
 
-Here are some ideas to get you started:
+you might see me in-game as a pony from:
+- hololive <sup>(i love pekora)</sup>
+- doki doki literature club <sup>(i love monika)</sup>
+- higurashi <sup>(i love rena)</sup>
+- kakegurui <sup>(i love yumeko)</sup>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+i'm happy to add anypony as a friend if we share any of these interests,<br>
+but i'm usually afk / tabbed out,<br>
+so please send me a whisper if you want to interact!<br>
