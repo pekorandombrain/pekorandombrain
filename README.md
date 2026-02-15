@@ -1,12 +1,13 @@
 # hi to whoponyever is reading this >_o
 
-<img src="https://i.imgur.com/UyW2XVM.gif" align="right" width="285">
+<img src="https://i.imgur.com/UyW2XVM.gif" align="right" width="300">
 
 you might see me in-game as a pony from:
 - hololive <sup>(i love pekora)</sup>
 - doki doki literature club <sup>(i love monika)</sup>
 - higurashi <sup>(i love rena)</sup>
 - kakegurui <sup>(i love yumeko)</sup>
+- corpse party <sup>(i love ayumi)</sup>
 
 i'm happy to add anypony as a friend if we share any of these interests,<br>
 but i'm usually afk / tabbed out,<br>
