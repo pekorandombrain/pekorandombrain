@@ -1,6 +1,6 @@
 # hi to whoponyever is reading this >_o
 
-<img src="https://i.imgur.com/UyW2XVM.gif" align="right" width="300">
+<img src="https://i.imgur.com/UyW2XVM.gif" align="right" width="350">
 
 you might see me in-game as a pony from:
 - hololive <sup>(i love pekora)</sup>
@@ -8,6 +8,7 @@ you might see me in-game as a pony from:
 - higurashi <sup>(i love rena)</sup>
 - kakegurui <sup>(i love yumeko)</sup>
 - corpse party <sup>(i love ayumi)</sup>
+- love live <sup>(i love honoka)</sup>
 
 i'm happy to add anypony as a friend if we share any of these interests,<br>
 but i'm usually afk / tabbed out,<br>
