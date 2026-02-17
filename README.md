@@ -5,7 +5,7 @@
 you might see me in-game as a pony from:
 - hololive <sup>(i love pekora)</sup>
 - doki doki literature club <sup>(i love monika)</sup>
-- higurashi <sup>(i love rena)</sup>
+- higurashi <sup>(i love satoko)</sup>
 - kakegurui <sup>(i love yumeko)</sup>
 - corpse party <sup>(i love ayumi)</sup>
 - love live <sup>(i love honoka)</sup>
