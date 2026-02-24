@@ -14,3 +14,5 @@ you might see me in-game as a pony from:
 i'm happy to add anypony as a friend if we share any of these interests,<br>
 but i'm usually afk / tabbed out,<br>
 so please send me a whisper if you want to interact!<br>
+
+cuddling, hiding, hugging... i don't mind! 
