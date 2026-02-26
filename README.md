@@ -1,6 +1,6 @@
 # hi to whoponyever is reading this >_o
 
-<img src="https://i.imgur.com/UyW2XVM.gif" align="right" width="450">
+<img src="https://i.imgur.com/UyW2XVM.gif" align="right" width="430">
 
 you might see me in-game as a pony from:
 - hololive <sup>(i love pekora)</sup>
